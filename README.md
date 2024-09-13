@@ -1,4 +1,4 @@
-### Hi there 👋,I'nangong .
+### Hi there 👋,I'nanGong .
 
 - 🔭 I’m currently working on something cool.
 - 🌱 I’m currently learning Everything I like.
